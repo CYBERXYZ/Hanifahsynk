@@ -1,2 +1,2 @@
 # Hanifahsynk
-K.O.N.T.O.L
+Mau Gua Ewe TUH Sarah Violid
